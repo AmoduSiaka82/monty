@@ -1,1 +1,1 @@
-Team project of Amodu Siaka
+Team project by Amodu Siaka
